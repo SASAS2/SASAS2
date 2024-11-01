@@ -1,7 +1,7 @@
 ## Personal Infomation
 * College Students
 * Transgender Girl 🏳️‍⚧️
-*Software Technology Major
+* Software Technology Major
 
 ## What am I doing
 * Studying for a bachelor's degree
